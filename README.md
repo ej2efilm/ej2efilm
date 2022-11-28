@@ -1,0 +1,5 @@
+- Hi, I’m @ej2efilm
+- I’m interested in creating art, songwriting, song composing and coding.
+- I’m currently learning the intro to coding by CS50 on edX
+- I’m looking to collaborate on crome extentions projects
+- How to reach me (twt: ej2efilm) (instagram: @iguessnotj or @kmjfi.lms)
